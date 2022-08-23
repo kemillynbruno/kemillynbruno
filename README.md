@@ -1,0 +1,5 @@
+- 🧿 @kemillyn
+- 📚 CEPK
+- 💻 Técnico em Informática- 2º TIA
+- 💞️ Amo comer e dormir
+- 📫 Email_ kemillyn.senenko@escola.pr.gov.br _
